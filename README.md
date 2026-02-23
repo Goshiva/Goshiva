@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Goshiva
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning pharmacy but I'm interested in coding
+- 🌱 I’m currently pharmacy graduate but I'm interested in coding
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
